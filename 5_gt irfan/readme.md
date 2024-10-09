@@ -1,2 +1,0 @@
-koramenu kiran
-adapa mahesh 
